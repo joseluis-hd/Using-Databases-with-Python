@@ -9,6 +9,6 @@ Hope you find this usefull 😄
 
 💻
 ```
-Insta: @joseluis_hd_
+Instagram: @joseluis_hd_
 TW: @hd_joseluis
 ```
